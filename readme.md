@@ -8,7 +8,7 @@ Three of my favourite books are"
 - *The Grapes of Wrath* by John Steinbeck
 - *Leonardo da Vinci* by Walter Isaacson
 
-I am currently reading *The Spy and the Traitor* by Ben Macintyre (aexcelle read)
+I am currently reading *The Spy and the Traitor* by Ben Macintyre (an **excellent** read)
 
 ### Pastimes
 
